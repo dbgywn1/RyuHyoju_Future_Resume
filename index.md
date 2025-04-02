@@ -12,9 +12,7 @@ Tel | 010-2516-6559
 ### 소개
   [광운대학교](https://www.kw.ac.kr) [정보융합학부](https://ic.kw.ac.kr/main/main.php) 소속	
   
-
-  ----
-
+----
 
 <br>
 
